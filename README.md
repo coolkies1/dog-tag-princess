@@ -2,7 +2,7 @@ Hi, I'm Princess
 
 I am very friendly!
 
-I am lost!
+If you find me, I am lost!
 
 Please Call my Family at,
 
